@@ -1,5 +1,6 @@
-# Encrypted by K-fuscator
-# Github- https://github.com/KasRoudra/k-fuscator
+# Encrypted by zakkiXD-Dev
+# Beli? 082137435046
+# recode mulu kerjaan lu🗿
 
 z="
 ";fBz='□□□□';Dz=' "  ';QBz=' "';UBz='s Un';xBz=' GAM';oz='L MO';kz='****';iBz='p 1.';LBz='BINT';PCz='zakk';vBz='E EX';fz='  o ';ez='-o-o';rz='ERT ';BBz='XD-D';Gz='o   ';CCz='lear';QCz='iXD-';MCz='2022';Tz='O   ';gz='o  o';lBz='□□ 4';kBz='■■■■';jz=' " *';Ez='    ';iz='"';hz=' | o';wz='EVEL';cz='/  "';Yz=' | |';sBz='NSTA';vz=' " D';Oz=' |  ';Uz='OO  ';Xz='/  |';Hz=' o-o';pBz='00% ';KCz='s "';yz=' : z';OBz='ITHU';MBz='ANG ';EBz='UBSC';hBz='0% "';gBz='□□ 2';sz='GAME';bz='/ \ ';Cz='p 2';yBz='E 0.';Lz='| / ';Fz='   o';qBz='DONE';KBz='SIH ';lz='*** ';dBz=' " ■';NBz='DI G';JCz='hank';WBz='all ';NCz='-202';LCz=' " ©';RBz='p 3';Vz=' O  ';Wz=' O "';eBz='■■□□';HBz='NNEL';OCz='4 ~ ';ICz=' " T';az='| \ ';mz='UNIN';JBz='& KA';ACz='1 "';rBz=' UNI';ZBz=' " L';uBz='ODUL';BCz=' " C';Zz=' \  ';RCz='Dev ';Nz='\ / ';ECz='kgro';XBz='Modu';HCz='p 1';DCz=' Bac';qz=' EXP';PBz='B 🗿';tBz='LL M';Qz=' " o';Az='echo';pz='DULE';YBz='le..';dz='-o o';wBz='PERT';Pz='\  "';Bz='slee';Mz=' o  ';GBz=' CHA';Jz='   |';GCz='App ';VBz='inst';DBz=' " S';bBz='NG..';cBz='. "';uz='  "';xz='OPER';aBz='OADI';ABz='akki';FCz='und ';FBz='RIBE';Kz=' /  ';Sz='oo O';mBz='□□ 6';Iz='   "';CBz='ev "';nBz='□□ 8';oBz='■■ 1';TBz='rose';SBz=' " P';jBz='5';tz=' 0.1';nz='STAL';Rz='-o  ';IBz=' YT ';
